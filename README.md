@@ -1,1 +1,1 @@
-https://github.com/Prakashmodi15/Gift-dhamaka-offer/blob/main/Table.html
+https://prakashmodi15.github.io/Gift-dhamaka-offer/
